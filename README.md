@@ -1,4 +1,4 @@
-# Hey, I'm Tobi 👋
+# Hey, I'm Oluwatobi 👋
 
 ### 🌦️ Meteorology Student × 💻 Web Developer
 
